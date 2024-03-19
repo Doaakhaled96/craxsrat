@@ -1,4 +1,4 @@
-# craxsrat
+# CraxsRat 7.4
 
 CraxsRat V7.4
 
