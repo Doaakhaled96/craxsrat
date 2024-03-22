@@ -21,6 +21,8 @@ Wallet Address: TKFVqit2KLBYAMNdqnnePGeTAR94MbHWLJ
 
 XMR(Monero):
 Wallet Address: 49EXtsU4HVaQFZDbGSxQ224u7FaEDrKQP6k7XaxvtAPBDWwcoq1H4zgQZZe255gHtpV7AqEvpvZmb9aemn3YXGLjNUtp4Kp
+
+
 Download Link : https://drive.google.com/file/d/1urI_kCPuALsmT_YZcd32Y5-jTqB7v_Hr
 Password : 2024
 
